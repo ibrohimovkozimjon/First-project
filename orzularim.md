@@ -1,0 +1,3 @@
+qalesiz
+yaxshimisiz 
+mima gaplar
